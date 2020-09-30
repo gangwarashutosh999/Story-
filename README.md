@@ -1,2 +1,0 @@
-# Story-
-A New Story 
